@@ -1,0 +1,2 @@
+# VNCOIN
+www.vncoin.xyz
